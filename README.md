@@ -1,1 +1,6 @@
 # eeg-arm-firmware
+
+ARM FOR DAYS
+
+YEEEEEEEEAAAHHHHH
+I LOVE ARM
